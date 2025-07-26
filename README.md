@@ -6,7 +6,7 @@ An enthusiastic developer with a love for building beautiful and functional web 
 ---
 
 📫 Reach me at **[niharika123@gmail.com](mailto:niharika123@gmail.com)**  
-📄 Check out my experiences on [Resume](https://your-resume-link.com)
+📄 Check out my experiences on [Resume](https://github.com/Niharika062/Niharika062/blob/main/niharika_resume1.pdf)
 
 ---
 
