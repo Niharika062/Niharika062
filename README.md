@@ -39,6 +39,7 @@ An enthusiastic developer with a love for building beautiful and functional web 
 </p>
 
 ---
+[![An image of @niharika062's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/niharika062)](https://holopin.io/@niharika062)
 
 [![An image of @niharika062's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/niharika062)](https://holopin.io/@niharika062)
 
